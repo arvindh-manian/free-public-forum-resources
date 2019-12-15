@@ -1,4 +1,4 @@
-# A collective list of free PF resources for use in competitive debate.
+# A collective list of free resources for use in competitive Public Forum debate.
 
 If you actually want to contribute, HMU at my email on [my profile](https://github.com/arvindh-manian) 
 
